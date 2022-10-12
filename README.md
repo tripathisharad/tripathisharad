@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Sharad Tripathi
 - 👀 I’m interested in Android App Devlopment
 - 🌱 I’m currently Persuaing B.Tech 
-- 📫 You can contact me through email - tripathisharad101@gmail.com
+- 📫 You can contact me through given below links
 
 <br/>
 
