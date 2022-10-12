@@ -3,7 +3,7 @@
 - 🌱 I’m currently Persuaing B.Tech 
 - 📫 You can contact me through email - tripathisharad101@gmail.com
 
-
+<br/>
 
 
 ### 🔗 Connect with me:
